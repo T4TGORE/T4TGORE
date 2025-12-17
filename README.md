@@ -9,7 +9,9 @@
     </br>
   <img align="center" src="https://imgur.com/hI1h2FM.png">
   </br>
-  <sup>irl ff16 leviathan 0_o</sup>
+  <sub>im THE chocoletsky.. 0_o</sub>
+  </br>
+  <sup>leviathan final fantasy is litrly me..!!</sup>
     </br>
   <img align="center" src="https://graphic.neocities.org/ff7.gif">
   <img align="center" src="https://komarev.com/ghpvc/?username=riisiingtiide&color=24d1ff&style=plastic&label=haaiii!!!&abbreviated=true">
