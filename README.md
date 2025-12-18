@@ -44,6 +44,6 @@
   <img align="left" src="https://f3verdream.carrd.co/assets/images/gallery01/37896cdc.gif?v=b7464855">
     </br>
   <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery03/fe685530.png?v=c35eb199">
-  <img align="center" src="https://gifcity.carrd.co/assets/images/gallery56/aef2f831.gif?v=e3c0bc0f">
+  <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery04/861d28fe.png?v=46590051">
   <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery03/78efe066.png?v=c35eb199">
 </p>
