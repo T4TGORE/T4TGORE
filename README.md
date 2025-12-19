@@ -25,21 +25,22 @@
     </br>
   <img align="center" src="https://imgur.com/xsyKvfl.gif">
     </br>
-  <i><b><sub>silence,</sub>
+  <i><b><sub>swell, ye seas of olde,</sub>
   </br>
-  <sup>from the knife that softly severs</sup>
+  <sup>Leviathan, Leviathan</sup>
   </br>
-  <sub>mistaken,</sub>
+  <sub>surging tides grow bold,</sub>
   </br>
-  <sup>for an unsung prayer</sup>
+  <sup>Leviathan</sup>
   </br>
-  <sub>now rising,</sub>
+  <sub>seething currents whorl,</sub>
   </br>
-  <sup>from the soundless deep, awaken</sup>
+  <sup>Leviathan, Leviathan</sup>
   </br>
-  <sub>white fury,</sub>
+  <sub>to swallow up the world,</sub>
   </br>
-  <sup>burning indigo!</sup></b></i>
+  <sup>Leviathan, <b>Leviathan!</b></sup></b></i>
+  <br/>
   <img align="right" src="https://f3verdream.carrd.co/assets/images/gallery01/679c0de8.gif?v=3631ebfb">
   <img align="left" src="https://f3verdream.carrd.co/assets/images/gallery01/37896cdc.gif?v=b7464855">
     </br>
