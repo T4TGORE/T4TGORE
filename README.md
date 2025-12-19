@@ -39,7 +39,7 @@
   </br>
   <sub>white moondrops,</sub>
   </br>
-  <sup><b>burning indigo!</b></sup></b></i>
+  <sup>burning indigo!</sup></b></i>
   <br/>
   <img align="right" src="https://f3verdream.carrd.co/assets/images/gallery01/679c0de8.gif?v=3631ebfb">
   <img align="left" src="https://f3verdream.carrd.co/assets/images/gallery01/37896cdc.gif?v=b7464855">
