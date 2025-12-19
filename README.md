@@ -25,21 +25,21 @@
     </br>
   <img align="center" src="https://imgur.com/xsyKvfl.gif">
     </br>
-  <i><b><sub>swell, ye seas of olde,</sub>
+  <i><b><sub>sdrifting,</sub>
   </br>
-  <sup>Leviathan, Leviathan</sup>
+  <sup>in the realm beyond all-knowing</sup>
   </br>
-  <sub>surging tides grow bold,</sub>
+  <sub>forsaken,</sub>
   </br>
-  <sup>Leviathan</sup>
+  <sup>shedding tears of glass</sup>
   </br>
-  <sub>seething currents whorl,</sub>
+  <sub>now tumbling,</sub>
   </br>
-  <sup>Leviathan, Leviathan</sup>
+  <sup>from the boundless heavens, taken</sup>
   </br>
-  <sub>to swallow up the world,</sub>
+  <sub>white moondrops,</sub>
   </br>
-  <sup>Leviathan, <b>Leviathan!</b></sup></b></i>
+  <sup><b>burning indigo!</b></sup></b></i>
   <br/>
   <img align="right" src="https://f3verdream.carrd.co/assets/images/gallery01/679c0de8.gif?v=3631ebfb">
   <img align="left" src="https://f3verdream.carrd.co/assets/images/gallery01/37896cdc.gif?v=b7464855">
