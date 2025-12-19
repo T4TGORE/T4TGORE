@@ -19,7 +19,7 @@
     </br>
     <img align="left" width="100" src="https://img.pokemondb.net/sprites/home/normal/gyarados-mega.png">
   <img align="center" src="https://graphic.neocities.org/ff7.gif">
-  <img align="center" src="https://komarev.com/ghpvc/?username=riisiingtiide&color=24d1ff&style=plastic&label=haaiii!!!&abbreviated=true">
+  <img align="center" src="https://komarev.com/ghpvc/?username=riisiingtiide&color=24d1ff&style=plastic&label=littl+minnowz+>.<&abbreviated=true">
   <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery01/09f70af6.gif?v=c7c39c46">
   <img align="right" width="100" src="https://f3verdream.carrd.co/assets/images/gallery01/c7e77cac.png?v=7f0928a3">
     </br>
