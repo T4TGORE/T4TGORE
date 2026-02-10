@@ -26,3 +26,6 @@ $\text{\color{#eaa9c8} hide me if my existence bothers u xx }$
   <br>
   <br>
 <img align="center" src="https://gifcity.carrd.co/assets/images/gallery49/ceeed9db.png?v=49efbe4c">
+  <br>
+  <br>
+$\text{\color{#d07fa5} `` fucking a hermaphrodite is the eighth heavenly virtue. '' }$
