@@ -1,5 +1,7 @@
 <p align="center">
+<img src="https://graphic.neocities.org/wing_l_by_king_lulu_deer-daymb2u.gif">
 <img align="center" height="40" src="https://gifcity.carrd.co/assets/images/gallery46/c209e623.png?v=49efbe4c">
+<img src="https://graphic.neocities.org/wing_r_by_king_lulu_deer-daymbdh.gif">
   <br>
   <br>
 <img hspace="30" src="https://gifcity.carrd.co/assets/images/gallery313/636fef38.png?v=49efbe4c">
